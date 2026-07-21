@@ -2,6 +2,7 @@ Hello, I'm just a person who studied applied and theoretical linguistics with a 
 
 Finally, I'm creating a place where all the materials will be stored.
 
-Just learning and improving my skill in this unfair world. 
+Just learning and improving my skill in analytics, data, cybersecurity. 
 
 Hello world I guesss ? 
+
